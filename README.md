@@ -1,4 +1,4 @@
 # Stitchables
  Longarm Quilting Design Files
 
- Please visit: [www.stichables.org](https://www.stichables.org)
+ Please visit: [www.stitchables.org](https://www.stitchables.org)
